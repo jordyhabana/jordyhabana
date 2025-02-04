@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @jordyhabana
-- 📫 How to reach me: email- jordyhabana@gmail.com 
